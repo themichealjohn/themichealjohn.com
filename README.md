@@ -1,1 +1,1 @@
-# themichealjohn.com
+themichealjohn.com hosting and stagging area
